@@ -16,5 +16,9 @@
 
 
 <p align="center">
+<img src="https://i.postimg.cc/28qgN3X2/Untitled329-20250927162602.png"> <img src="https://i.postimg.cc/7YCjrbQK/Untitled329-20250927162627.png"> <img src="https://i.postimg.cc/pXg4WxgD/Untitled329-20250927162920.png"> <img src="https://i.postimg.cc/MKhN6xhb/Untitled329-20250927163003.png"> <img src="https://i.postimg.cc/hPJNRh3C/Untitled329-20250927162740.png"> <img src="https://i.postimg.cc/HsfRYHfb/Untitled329-20250927162846.png"> <img src="https://i.postimg.cc/dtzpsvz2/Untitled329-20250927162936.png">
+</p>
+
+<p align="center">
 Click to feed! --> <a href="https://tamanotchi.world/22413c"><img src="https://tamanotchi.world/i/22413" alt="It's tamaNOTchi! Click to feed!"/></a>
 </p>
