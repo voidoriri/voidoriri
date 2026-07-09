@@ -1,23 +1,8 @@
 <p align="center">
 <img src="https://i.postimg.cc/4NZw5xPd/674284604.png">
 
-<p align="center"
-
-<p align="center">
-<img src="https://i.postimg.cc/xddMYRxt/038ad438.gif">
-
-<p align="center">
-<img src="https://i.postimg.cc/KvBZLDpL/a580f1de.gif">
 
 ---
-<p align="center">
-<img src="https://i.postimg.cc/PrXjmVkD/5218d54928e99108b0b14f2334d1439c08760316.gif"> <img src="https://i.postimg.cc/kgbRFP89/73758477a6913254911f58d703e87c4cfabe8744.gif"> <img src="https://i.postimg.cc/h4dgCJy1/colorfulblueoptionized-FINAL.gif"> <img src="https://i.postimg.cc/htMR1jPt/1e95ca4f5bc6a42364d62c25d3bcdf1481d541d9.gif"> <img src="https://i.postimg.cc/zv6C8Vr1/a6f09594efb37efc67446964a0c67d5944acdeb2.gif">
-</p>
-
-
-<p align="center">
-<img src="https://i.postimg.cc/28qgN3X2/Untitled329-20250927162602.png"> <img src="https://i.postimg.cc/7YCjrbQK/Untitled329-20250927162627.png"> <img src="https://i.postimg.cc/pXg4WxgD/Untitled329-20250927162920.png"> <img src="https://i.postimg.cc/MKhN6xhb/Untitled329-20250927163003.png"> <img src="https://i.postimg.cc/hPJNRh3C/Untitled329-20250927162740.png"> <img src="https://i.postimg.cc/HsfRYHfb/Untitled329-20250927162846.png"> <img src="https://i.postimg.cc/dtzpsvz2/Untitled329-20250927162936.png">
-</p>
 
 <p align="center">
 Click to feed! --> <a href="https://tamanotchi.world/22413c"><img src="https://tamanotchi.world/i/22413" alt="It's tamaNOTchi! Click to feed!"/></a>
